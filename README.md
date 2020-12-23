@@ -1,2 +1,2 @@
-# DO NOT TRY THIS MOD!
+# h
 I have 0 Responsibility if you use this mod.
